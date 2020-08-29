@@ -11,3 +11,6 @@ Gabriel Alba Gonzatti
 
 Lucas Mendes da Silva  
 1902676
+
+José Augusto Silva Martins  
+1902437
