@@ -8,3 +8,6 @@ Fernando Faustino Ferreira Nunes
 
 Gabriel Alba Gonzatti  
 1903614
+
+Lucas Mendes da Silva  
+1902676
